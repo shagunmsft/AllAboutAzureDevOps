@@ -1,2 +1,1 @@
-Akshay Rohilla [@akshayrohilla]
-Shagun [@shagunmsft]
+Akshay Rohilla [@akshayrohilla] and Shagun [@shagunmsft]
